@@ -1,3 +1,0 @@
-apa aja
-
-asasdasdasd
